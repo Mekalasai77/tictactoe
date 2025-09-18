@@ -47,5 +47,3 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 If you have questions or concerns about this Privacy Policy, you can reach us at:
 
 mekalasai77@gmail.com
-
-👉 Do you want me to make it super short and minimal (1–2 paragraphs) for publishing on the Play Store, or keep this detailed version?
